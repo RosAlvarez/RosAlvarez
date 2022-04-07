@@ -1,4 +1,4 @@
-## Bienvenido a mi perfil UwU
+## Bienvenid@ a mi perfil UwU
 
 ![Oops...](https://pbs.twimg.com/media/DKXRFTMVYAMYBgK?format=jpg&name=large)
 
