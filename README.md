@@ -1,6 +1,6 @@
 ## Bienvenido a mi perfil UwU
 
-![Oops...](https://www.google.com/url?sa=i&url=https%3A%2F%2Ftwitter.com%2Fhanapleek%2Fstatus%2F911364392825925632%3Flang%3Des&psig=AOvVaw350CIlaFPdZzgkeNBZFcUy&ust=1649414397578000&source=images&cd=vfe&ved=0CAoQjRxqFwoTCPCx-czhgfcCFQAAAAAdAAAAABAt)
+![Oops...](https://pbs.twimg.com/media/DKXRFTMVYAMYBgK?format=jpg&name=large)
 
 
 <!--
