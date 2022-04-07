@@ -2,7 +2,7 @@
 
 ![Oops...](https://pbs.twimg.com/media/DKXRFTMVYAMYBgK?format=jpg&name=large)
 
-**_...........................................................(H)ingeniera en proceso..........................................................._**
+**_......................................................(H)ingeniera en proceso......................................................_**
 
 <!--
 **RosAlvarez/RosAlvarez** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
