@@ -2,7 +2,7 @@
 
 ![Oops...](https://pbs.twimg.com/media/DKXRFTMVYAMYBgK?format=jpg&name=large)
 
-**_Experta en proceso_** {text-align: center;}
+**_Experta en proceso_**
 
 <!--
 **RosAlvarez/RosAlvarez** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
