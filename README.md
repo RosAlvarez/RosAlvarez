@@ -2,7 +2,7 @@
 
 ![Oops...](https://pbs.twimg.com/media/DKXRFTMVYAMYBgK?format=jpg&name=large)
 
-**_............................................(H)ingeniera de procesión............................................_**
+**_............................................(H)ingeniera de profesión............................................_**
 
 <!--
 **RosAlvarez/RosAlvarez** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
